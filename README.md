@@ -1,19 +1,21 @@
-# Abi y las Cartas Perdidas
+# Abi and the Lost Letters
 
-**Abi y las Cartas Perdidas** es una historia interactiva protagonizada por una pequeña coneja mensajera que vive en un mundo abandonado por los humanos.
+**Abi and the Lost Letters** is an interactive story starring a small messenger bunny who lives in a world abandoned by humans.
 
 ---
 
-## Link público del servidor
+## Public Server Link
 
 https://chicharronconpelos.shop/231497/LAB2/
 
 ---
 
-## Video demostrativo 
+## Demo Video
+
 https://www.canva.com/design/DAHCSwfd_rs/5Taj3iACGCkHIWqYEoagAQ/watch?utm_content=DAHCSwfd_rs&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h67e5b7b2bf 
 
 ---
-## ¿Te atreves a elegir?
 
-Ayuda a Abi a entregar las última carta…  
+## Do You Dare to Choose?
+
+Help Abi deliver the last letter…

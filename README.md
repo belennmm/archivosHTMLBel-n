@@ -11,7 +11,7 @@ https://chicharronconpelos.shop/231497/LAB2/
 ---
 
 ## Video demostrativo 
-
+https://www.canva.com/design/DAHCSwfd_rs/5Taj3iACGCkHIWqYEoagAQ/watch?utm_content=DAHCSwfd_rs&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h67e5b7b2bf 
 
 ---
 ## ¿Te atreves a elegir?
